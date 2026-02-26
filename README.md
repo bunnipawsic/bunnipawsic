@@ -1,4 +1,4 @@
-                                                  " i am you and you are me "
+                                              " i am you and you are me "
    <img width="1000" height="250" alt="if u know what this is from u are insane and i love you" src="https://github.com/user-attachments/assets/bfd1626d-4a16-480b-ad28-d15b004d92bc" />
                      
 <p align=center> batzy . 16 . not befriending anyone 13 and under or 20+, but you are free to int ^^
