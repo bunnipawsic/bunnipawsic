@@ -6,3 +6,4 @@
 
 ### <p align=center> i am woke slenderman find my pronouns.cc and rentry.co
 
+<p align=center> <sub> i am also lwk trying to make a kpop area,, whisp me if ur interested where it is LOL </sub>
