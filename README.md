@@ -6,4 +6,4 @@
 
 ### <p align=center> i am woke slenderman find my pronouns.cc and rentry.co
 
-<p align=center> <sub> commissions open ^_^ leave a comment on my ata with ur social(s). yes i draw furries and humans </sub>
+<p align=center> <sub> commissions open ^_^ leave a comment on my ata with ur social(s) or whisp me. yes i draw furries and humans give me your money thanks </sub>
